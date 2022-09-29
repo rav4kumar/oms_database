@@ -7,3 +7,5 @@ Taiwan: [Download: last updated july 3, 2022](https://thecorgirosie-my.sharepoin
 Florida: [Download: last updated july 3, 2022](https://thecorgirosie-my.sharepoint.com/:u:/p/jason_wen/EfSUnV9PtLFCjDiTrvMZOPIBVeg1SYjMQOCq-FsoUrv5vg?e=yaDpL2&download=1)
 
 NYC: [Download: last updated july 7, 2022](https://thecorgirosie-my.sharepoint.com/:u:/p/jason_wen/Ecx2vyduMtBLiYrBCJ6eu-YBYvmztE25F7s00FvPeUemzw?e=060Zlj&download=1)
+
+Tuebingen-Regbez: [Download: last updated sept 28, 2022](https://thecorgirosie-my.sharepoint.com/:u:/p/jason_wen/EYSziypCOnBJhjfXS_x85h4BGK68LGkJsDlGCQjOXhwYcw?e=Pz0JzV&download=1)
