@@ -9,3 +9,5 @@ Florida: [Download: last updated july 3, 2022](https://thecorgirosie-my.sharepoi
 NYC: [Download: last updated july 7, 2022](https://thecorgirosie-my.sharepoint.com/:u:/p/jason_wen/Ecx2vyduMtBLiYrBCJ6eu-YBYvmztE25F7s00FvPeUemzw?e=060Zlj&download=1)
 
 Tuebingen-Regbez: [Download: last updated sept 28, 2022](https://thecorgirosie-my.sharepoint.com/:u:/p/jason_wen/EYSziypCOnBJhjfXS_x85h4BGK68LGkJsDlGCQjOXhwYcw?e=Pz0JzV&download=1)
+
+South-Africa - [Download: last updated oct 1, 2022](https://thecorgirosie-my.sharepoint.com/:u:/p/jason_wen/ESBBZE76YPdCv19nN-F_zJ8BfnOseAdr692rtLsDT784kA?e=Aq2kiJ&download=1)
